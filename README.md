@@ -1,1 +1,1 @@
-# shockbliss
+# Buckle up your eyeballs and get ready for a technicolor joyride through the wonderland of ShockBliss! This ain't your grandma's photography – unless your grandma was a time-traveling, rainbow-riding, psychedelic sorceress. We conjure up images that are like a party in your brain, where colors dance, lines wiggle, and reality takes a backseat to awesome. ShockBliss is a celebration of weirdness, a love letter to the unconventional, and a big, fat "YES!" to letting your freak flag fly. So come on in, the water's fine (and probably glowing in the dark).
